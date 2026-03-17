@@ -1,4 +1,4 @@
-# 🎯 Analysis-of-the-Large-Scale-Retail-Sector-in-India-2019-2023-
+# 🎯 Analysis of the Large-Scale Retail Sector in India (2019–2023)
 
 ## 🌐 Links
 
